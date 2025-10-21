@@ -1,8 +1,4 @@
 - 👋 Hi, I’m @nyle06dn
-- 👀 I’m interested in sleeping all day
-- 🌱 I’m currently learning Math and :) idk
-- 💞️ I’m looking to collaborate on classmates from CS142 
-- 📫 How to reach me: instagram nyle.le_amachillguy
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Vietnamese
 
